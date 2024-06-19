@@ -1,1 +1,1 @@
-# Hello and welcome to Campus Casolo
+# Hello and welcome to Campus Castolo
